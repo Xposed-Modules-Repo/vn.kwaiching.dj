@@ -59,9 +59,9 @@
 
 ## 聯絡先: / Contacts:
 
-        - QQ群(QQ Group): 244370614, 445143736, 621751638
+        - QQ群(QQ ChatRoom): 244370614, 445143736, 621751638
 
-        - Telegram Group: https://t.me/kwaichingxposed
+        - Telegram ChatRoom: https://t.me/kwaichingxposed
 
         - Facebook/Twitter: Heung Kwai Ching
 

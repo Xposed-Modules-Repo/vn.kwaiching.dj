@@ -97,9 +97,3 @@ Stable (low risk of bugs)
 
 星耀雲盤
         http://www.starsdisk.com/space_kwaiching.html
-
-
-
-DJ多多
-
-        https://apkpure.com/cn/dj-music/com.shoujiduoduo.dj/versions

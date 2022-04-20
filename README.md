@@ -33,28 +33,22 @@
 
 ## 支持版本下載鏈接: / Some supported version of official APP:
 
-        -貴族網盤:
-        https://kwaiching.dudujb.com
-
         -城通網盤:
         https://u062.com/d/16731109-40183208-4b8931
         [访问密码：9214]
 
 
         -星耀雲盤:
-        http://www.starsdisk.com/space_kwaiching.html
+        http://www.xingyaopan.com/space_kwaiching.html
 
 ## DJkwaiching:
-
-        -貴族網盤:
-        https://kwaiching.dudujb.com/folder_7795.html
 
         -城通網盤:
         https://url09.ctfile.com/d/16731109-40658171-90a3e3
         [密碼: 9214]
 
         -星耀雲盤:
-        http://www.starsdisk.com/space_kwaiching_1058.html
+        http://www.xingyaopan.com/space_kwaiching_1058.html
 
 ## 聯絡先: / Contacts:
 
@@ -65,4 +59,3 @@
         - Facebook/Twitter: Heung Kwai Ching
 
         - Instagram/Tumblr: kwaiching
-        
